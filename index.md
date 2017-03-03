@@ -25,7 +25,7 @@
 
 ## Find this: 
 
-[[http://i66.tinypic.com/ju7sde.jpg]]
+[[https://github.com/li-steven/Amy-Vuong/blob/master/IMG_6313.JPG]]
 
 
 
