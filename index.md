@@ -3,7 +3,7 @@
 ## Welcome to your own personal website: [www.amyvuong.com](www.amyvuong.com)
 
 ## I decided to reserve the website name for you which will last forever on the internet
-## I hope this lasts longer than a card :P
+## I hope this lasts longer than a birthday card :P
 
 ## You can do whatever you want with it and I can help you get started!
 
