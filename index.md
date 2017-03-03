@@ -25,7 +25,7 @@
 
 ## Find this: 
 
-!(Pic)https://github.com/li-steven/Amy-Vuong/blob/master/IMG_6313.JPG
+![Pic](https://github.com/li-steven/Amy-Vuong/blob/master/IMG_6313.JPG)
 
 
 
