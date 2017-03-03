@@ -7,7 +7,7 @@
 
 ## You can do whatever you want with it and I can help you get started!
 
-## But first!
+## BUT FIRST!
 
 ## You must be thinking...
 
